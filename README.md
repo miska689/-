@@ -1,0 +1,2 @@
+# -
+Membru echipei ka
